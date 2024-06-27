@@ -3,4 +3,4 @@
 - 🌱 I’m a sophomore in high school
 - 😄 Pronouns: she/her/hers
 - ⚡ I love learning dance, creating ceramics, meeting new people
-- 🤣 I love visiting cafes, and I spend concerning amounts of time on perfecting Spotify playlists
+- 🤣 Random facts about me are that I like visiting cafes, and I spend concerning amounts of time on perfecting Spotify playlists
